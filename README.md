@@ -1,0 +1,2 @@
+# arkadas
+dostlugun adresi
